@@ -30,7 +30,7 @@
 
 ### 📫 Let's Connect:
 - 🔗 [GitHub](https://github.com/SHUBHANGI11gaikwad)
-- 💼 [LinkedIn (www.linkedin.com/in/shubhangi-gaikwad-profile)]()
+- 💼 [LinkedIn](www.linkedin.com/in/shubhangi-gaikwad-profile)
 
 ---
 
